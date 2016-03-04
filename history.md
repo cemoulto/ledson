@@ -1,0 +1,5 @@
+# History
+Originally designed as a family home, the 16,000 square foot Ledson winery and tasting room was immediately dubbed “The Castle” when it was completed. Its sweeping gothic spires and picturesque picnic area sit amidst 17 acres of rolling vineyard. These vines, and others owned by the Ledson family in neighboring California appellations, yield some of the most highly praised family-owned wines in wine country, and indeed the United States.
+Winemaker Steve Ledson, whose family goes back three generations in Sonoma County, left a lucrative career as a builder to found Ledson Winery. In 1993, he and his family seeded for the first vine only a crow’s flight from his great grandfather William Cunningham’s land. In 1997, Ledson Winery’s first release began a streak of critical acclaim from the elite wine press that has continued to this day.
+
+Ledson Winery now produces more than 70 wines each year from their family-owned Calfornia vineyards. But Ledson still treats visitors like family. Every bottle of Ledson wine is sold directly to the customer—no middle men or outrageous markups. Taste them for yourself at Ledson Winery in Sonoma.
